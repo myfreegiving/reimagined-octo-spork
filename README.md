@@ -1,0 +1,3 @@
+# reimagined-octo-spork This oirganization Has a mandate. To bring awareness to our homes, communities and ultamately the government, to see change on our  streets and to rid of poverty and homlessness, and hunger.Shame on us for letting our fellow man hunger and starve, While we sit on extra rooms clothes food and shelter.Shame on me for not seeing this sooner
+We have a calling to bring our finances and what we can to this table to see this happen. contacts, money, furnutrfe ,clothes, petitions to get the lorrds working , resouces, selves, volunteers. Its Time. We need a space to store things we need buildings and we need money. So lets go.
+we need a board of directors and controllers 5 and 5 should do it. ANYONE????????
